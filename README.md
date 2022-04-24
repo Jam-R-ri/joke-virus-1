@@ -1,3 +1,3 @@
 a joke virus
 
-[PASSCODE ####]
+[PASSCODE FOR EXE 3160]
