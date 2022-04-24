@@ -1,3 +1,3 @@
 a joke virus
 
-a joke virus [PASSCODE ###]
+a joke virus [PASSCODE ####]
